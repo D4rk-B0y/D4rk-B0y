@@ -1,8 +1,7 @@
-### Hi there 👋, I'm Abir
+### Hi there 👋, I'm Abir Rahman👹
 
 #### I'm Electrical Engineer 
 
-![I'm Electrical Engineer ](https://en.wikialpha.org/wiki/File:Md.abedur.jpg)
 
 Assalamu Alaikum 
 
