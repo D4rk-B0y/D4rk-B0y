@@ -9,7 +9,7 @@
  
 <h3 align="center">
   <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="30">
- ༊MD. ABEDUR RAHMAN༊ 
+ ༊𝐀𝐁𝐈𝐑 + 𝐌𝐀𝐈𝐒𝐇𝐀༊ 
   <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="30">
 </h3>
  
